@@ -1,1 +1,1 @@
-# ShooterMK7.github.io
+link shortener coming soon.
